@@ -1,1 +1,1 @@
-Archive of the files that were presented during the 2nd year 2nd sem Mini-Project
+Archive of the files that were presented during the IInd year IInd sem Mini-Project
